@@ -1,0 +1,2 @@
+# qualification-for-a-loan
+CT101/G/22766/24 QUALIFICATION FOR A LOAN ASSIGNMENT
